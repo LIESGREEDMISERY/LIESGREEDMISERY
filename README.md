@@ -51,5 +51,6 @@
 <p></p>
 <p><img src="https://64.media.tumblr.com/1f7616dce91bc86d7b05884bd81ff039/29d4c867781fa997-3e/s400x600/9fbad5ab46aac0f4a3ccbd619f8534aab0305c43.gifv" alt="gif"><img src="https://64.media.tumblr.com/1f7616dce91bc86d7b05884bd81ff039/29d4c867781fa997-3e/s400x600/9fbad5ab46aac0f4a3ccbd619f8534aab0305c43.gifv" alt="gif"></p>
 <img src="https://i.pinimg.com/736x/8f/c2/28/8fc22800569c62135d453d3ae80d85ff.jpg" alt="jpg"></p>
-
+<img src="https://i.pinimg.com/736x/68/99/55/689955bf460a66320bfd613491bcef94.jpg" alt="jpg"></p>
+чУВАК ЭТО ОЧЕНЬ КРУТАЯ КАРТИНКА БРО
 
